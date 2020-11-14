@@ -1,5 +1,5 @@
 # awesome_domains
 Awesome domains
 
-[bid.et](bid.et)  
-[yourmom.gay](yourmom.gay)  
+[bid.et](http://bid.et)  
+[yourmom.gay](http://yourmom.gay)  
